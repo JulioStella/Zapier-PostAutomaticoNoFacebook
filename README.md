@@ -1,4 +1,4 @@
-📊 Projeto em Zapier | Estudo em Automação de IA
+📊 Projeto em Make | Estudo em Automação de IA
 
 
 
